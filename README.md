@@ -1,4 +1,4 @@
-![LOGO] (https://s1.ax1x.com/2018/12/03/FKfFDU.png)
+![LOGO](https://s1.ax1x.com/2018/12/03/FKfFDU.png)
 # 大香蕉地址发布页
 ### 微信用户和QQ用户请复制到浏览器访问！
 ## 【地址1】：http://www.18xiangjiao.pw
